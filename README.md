@@ -2,4 +2,4 @@
 
 ### <div align="center">🧙‍♂️ Self-taught</div>
 
-### <div align="center">👀 Looking for a junior position where I can truly flourish</div>
+### <div align="center">👀 Looking for something new where I can truly flourish</div>
